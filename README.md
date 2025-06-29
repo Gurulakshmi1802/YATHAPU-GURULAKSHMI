@@ -5,4 +5,3 @@
 📈 Looking forward to improving my skills through open-source and internships.
 💌 Email: **lakshmiguru386@gmail.com**  
 - 📱 Phone: _(8132818940 on request)_
-
